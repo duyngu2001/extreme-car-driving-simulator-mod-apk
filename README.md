@@ -6,7 +6,7 @@
 
 The **Extreme Car Driving Simulator MOD APK** is a high-speed mobile racing game where players explore a massive open world with all cars unlocked. Developed by AxesInMotion Racing, this Android game places players in a thrilling cityscape filled with endless racing possibilities, stunts, and customization options. Designed for Android users who crave realistic driving physics and the freedom to roam in a detailed environment, the **Extreme Car Driving Simulator MOD APK latest version** brings the action straight to your fingertips.
 
->Download: [Car Driving Simulator MOD APK](https://modhello.com/extreme-car-driving-simulator/)
+>Download: [Car Driving Simulator MOD APK](https://dub.sh/extreme-car-driving-simulator)
 
 This racing simulation game stands out for its dynamic environments and diverse vehicle selection. The MOD APK version enhances the experience, unlocking all cars and customization options to ensure unlimited excitement.
 
